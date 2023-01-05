@@ -1,1 +1,1 @@
-# EkaterinaAD
+# rsschool-cv
